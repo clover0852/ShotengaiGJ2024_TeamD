@@ -1,1 +1,1 @@
-# ShotengaiGJ2024_TeamD
+# 商店街ゲームジャム2024in香川 チームD
